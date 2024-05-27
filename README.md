@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GamanTheMan
+- 👋 Hi, I’m @GamanTheGreat
 - 👀 I’m interested in Medicine and STEM overall
 - 🌱 I’m currently learning about Neurosurgery and ways to make it safer and faster
 - 💞️ I’m looking to collaborate on projects to contribute to my learning and to find opportunities online for better research
